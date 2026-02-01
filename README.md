@@ -19,9 +19,20 @@ Result: You feeling secondary.
 Spending time with friends was fun.
 But upsetting you wasn’t worth it.
 
+## Final Note:
+
+Spending time with friends was fun.
+But upsetting you wasn’t worth it.
+
+You matter more than one night out.
+
 ## Request:
-Let’s not waste Sunday being angry.
-Let me spend it with you and make it better.
+
+Can we reset this?
+Let’s not waste Sunday being distant.
+
+Let me spend it with you properly.
+No distractions. Just us.
 
 Waiting for approval…
 
